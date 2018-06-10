@@ -1,0 +1,6 @@
+# kesanpesanbemfikti18
+Repository gaje
+
+ ZHATXVA VAV HAGHX XRCRATHEHFNA FRYNAWHGALN QNA UVATTN FRYNAWHGALN CYHF2 JXXJ.  ORZ SVXGV HT CHALN WHTN ERAPNAN WNATXN CNAWNAT GVQNX UNALN CRE CEBXRE FRGVNC GNUHA, FRZBTN YROVU OREZNASNNG QNA ORESNRQNU YNTV OHNG ZNUNFVFJN, SBEHZ NFCVENFV WHTN HQNU BXR , NYNATXNU YROVU ONVX NFCVENFV GREFROHG QV GENAFCNENFV WHTN , NQN SBEHZ QBFRA GRAGNAT GVCF NAQ GEVPX, HAGHX NPNEN YROVU QV FVNCVA YNTV, XRGHN CRYNXFNAN LNAT NXNA ZRYNXFNANXNA GHTNF FRONVXALN QVOREVXNA CRZNUNZNA QNEV YCW FRORYHZALN QNA FGRC LNAT XHENAT GRCNG QVCREONVXV, FRZBTN ORZ SVXGV HT XRQRCNA FHQNU FRONTNV FNUNONG QRXNG ZNUNFVFJN QNA XNZCHF YROVU ONVX YNTV ZNFLNENXNG !! GRGNC FRZNATNG
+
+Mungkin Ini Untuk Kepengurusan Selanjutnya Dan Hingga Selanjutnya Plus2 Wkkw. Bem Fikti Ug Punya Juga Rencana Jangka Panjang Tidak Hanya Per Proker Setiap Tahun, Semoga Lebih Bermanfaat Dan Berfaedah Lagi Buat Mahasiswa, Forum Aspirasi Juga Udah Oke , Alangkah Lebih Baik Aspirasi Tersebut Di Transparasi Juga , Ada Forum Dosen Tentang Tips And Trick, Untuk Acara Lebih Di Siapin Lagi, Ketua Pelaksana Yang Akan Melaksanakan Tugas Sebaiknya Diberikan Pemahaman Dari Lpj Sebelumnya Dan Step Yang Kurang Tepat Diperbaiki, Semoga Bem Fikti Ug Kedepan Sudah Sebagai Sahabat Dekat Mahasiswa Dan Kampus Lebih Baik Lagi Masyarakat !! Tetap Semangat
